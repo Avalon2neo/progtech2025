@@ -1,2 +1,2 @@
 # progtech2025
-Hálló
+1:07:00 perc a videón
